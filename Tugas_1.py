@@ -1,1 +1,1 @@
-nama saya nining
+nama saya nining dan dina
